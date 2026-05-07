@@ -1,1 +1,0 @@
-# Campus-plants-in-UJN
